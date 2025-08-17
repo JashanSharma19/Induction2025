@@ -25,5 +25,3 @@ Er. Rakesh Kumar, GNDEC Alumnus (Batch 1991) and ADC, Ludhiana
 Both guests shared their experiences and encouraged students to focus on building not just technical skills but also values and vision for the future.
 
 📍 The program ended with a Vote of Thanks by Dr. K.S. Mann, Head of the IT Department, who appreciated everyone’s efforts in making the event successful.
-
-We welcome our future tech leaders and wish them a bright and fulfilling journey at GNDEC!
